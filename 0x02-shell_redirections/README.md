@@ -1,1 +1,1 @@
-redirections
+japan
